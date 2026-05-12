@@ -1,4 +1,4 @@
-# 
+# ultimate NFT Scanner for nft flip bot | trailing-stop & trait-analysis offers the most advanced nft flip bot, with trailing-stop and trait-analysis. Ideal for professional NFT
 
 
 
